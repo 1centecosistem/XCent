@@ -1,0 +1,1 @@
+It is a token made for the Shiba Inu ecosystem community in specify the present and future shib holders, and has as its objective The main thing is that Bone reaches $1000, contributing Weekly burns of the Bone token and thus reduce the supply and revaluing its value over time.
